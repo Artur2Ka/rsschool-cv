@@ -2,7 +2,7 @@
 =====
 Artur2Ka
 =====
-- Phone: +79999999999
+- Phone: +79658408040
 - E-mail: GoodspeeD_86@mai.ru
 - GitHub: Artur2Ka
 - Telegram: https://t.me/ArturKadirov
